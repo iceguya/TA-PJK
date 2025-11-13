@@ -11,7 +11,7 @@
 ---
 
 ## 3. Judul 3
-[YouTube: Judul 3 TA](https://youtube.com/struktur-ta-pjk)
+[YouTube: Judul 3 TA](https://youtu.be/l39GYfk0JuQ)
 
 ---
 ## 4. Judul 4
